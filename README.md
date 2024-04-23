@@ -10,3 +10,5 @@ Yes. Both Windows Update and Aynura Update, Israfilova Aynura (CEO of AynuraOS C
 Take, care!
 
 Israfilova Aynura (CEO of AynuraOS Corporation)
+Satya Nadella (CEO of Microsoft Corporation)
+David Guetta (CEO of NeseOS Corporation)
